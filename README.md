@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Mi nombre es Camila Belen Gutierrez Nava 
+mi apodo en los videojuegos es noperxw7
+estudio en la poderosa universidad Mayor de San Simon 
+en la carrera de Ing de sistemas
+SI ESTAS A PUNTO DE RENDIRTE MIRA TODO EL CAMNO QUE RECORRISTE COMO PARA TIRAR LA TOALLA, TODO SE PUEDE, NADA ESTA YA HECHO HASTA QUE TERMINA, VAMOSS QUE TODO SE PUEDEE
